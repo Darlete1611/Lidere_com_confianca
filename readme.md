@@ -17,4 +17,4 @@ Este Ebook desenvolve grandes oportunidades de crescrimento de uma equipe, sendo
 **[Acesse o Ebook](https://drive.google.com/file/d/1tPWok11fZn0NTkutvuuHPex2n1H3I0DK/view?usp=sharing)**
 
 ## 💭 Reflexão (Opcional)
-criar este e-book foi uma esperiencia reveladora sobre o potencial criativo das IAs e como elas podem ser aplicadas em diferentes contextos. 
+criar este e-book foi uma experiência reveladora sobre o potencial criativo das IAs e como elas podem ser aplicadas em diferentes contextos. 
